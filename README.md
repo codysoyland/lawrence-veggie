@@ -1,0 +1,90 @@
+Lawrence vegetarian/vegan restaurants
+=====================================
+
+Definitely Vegan
+----------------
+
+- Dempsey's
+- Don Don
+- Encore
+- Ingredient
+- La Parilla
+- Local Burger
+- Pachamama's
+- Papa John's
+- Papa Murphy's
+- Pita Pit
+- Quizno's
+- Subway
+- Yello Sub
+- Zen Zero
+
+Vegetarian, maybe Vegan
+-----------------------
+
+- 23rd Street Brewery
+- 715
+- Aladdin's Cafe
+- Bambino's at the Grove
+- Burrito King
+- Cafe Beautiful
+- Carlos O'Kelly's Mexican Cafe
+- Chipotle
+- Cielito Lindo
+- Cupini's
+- Domino's Pizza
+- Einstein Brothers Bagels
+- El Mezcal
+- First Watch
+- Free State Brewing Company
+- Genovese
+- Global Cafe
+- Great Harvest Bread Co.
+- Gumby's Pizza
+- House of Cha
+- Imperial Garden
+- India Palace
+- Jade Garden
+- Jade Mongolian Barbeque
+- Jimmy John's
+- Jo Shmo's
+- Johnny's Tavern
+- Juice Stop
+- King Buffet
+- Kokoro
+- La Familia Cafe
+- La Tropicana
+- Long John Silver's
+- Mad Greek Restaurant
+- Marisco's
+- Mediterranean Market & Cafe
+- Mirth
+- Mr. Goodcents
+- Noodles & Company
+- Orient Vietnamese Cuisine
+- Paisano's Ristorante
+- Panda & Plum Garden
+- Panera Bread Bakery & Cafe
+- Papa Keno's
+- Peking Taste Chinese Restaurant
+- PepperJax Grill
+- Perkins Restaurant
+- Pizza Hut
+- Pizza Shuttle
+- Plum Tree
+- Pyramid Pizza
+- Quinton's Bar & Deli
+- Rudy's Pizzeria
+- Salty Iguana
+- Set'em Up Jacks
+- Taco Bell
+- Taco John's
+- Teller's
+- Tenth Street Vegetarian Bistro
+- Thai Siam
+- Tortas Jalisco
+- Wa
+- Wayne & Larry's Sports Bar & Grill
+- Wheat State Pizza
+- Wheatfields Bakery
+- Yokohama Sushi Japanese Restaurant
