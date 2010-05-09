@@ -10,6 +10,7 @@ Definitely Vegan
 - Ingredient
 - La Parilla
 - Local Burger
+- Mirth
 - Pachamama's
 - Papa John's
 - Papa Murphy's
@@ -58,7 +59,6 @@ Vegetarian, maybe Vegan
 - Mad Greek Restaurant
 - Marisco's
 - Mediterranean Market & Cafe
-- Mirth
 - Mr. Goodcents
 - Noodles & Company
 - Orient Vietnamese Cuisine
